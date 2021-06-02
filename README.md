@@ -26,7 +26,7 @@ But Tommy didn’t give up he trained and trained and trained with many fails, b
 ## Chapter 5:
 At that time Tommy and Beth got married, and after a period of time problems occured and they got divorced, it was a tough period on him, because Beth was his partner in climbing and life for 10 years, to get over it , Tommy decided to Climb again and challenging his limits, he climbed with his father, and he started to analyzing El Capitan Wall by going up and down on the mountain, in that period Tommy met Rebecca Pietsch and they got married.
 
-### Chapter 6:
+## Chapter 6:
 During his climbing on the Dawn Wall of El Capitan, they faced A LOT of obstacles, the climb was devided on 32 pitches and each day they do 2 to 3 pitches, Kevin his partner faced a big problem in the pitch 15 where there was no crashes in the wall, it was like blank, and Kevin couldn’t do it, but Tommy did it, Kevin tried many times for 3 days to cross the pitch 15 but with no luck, Tommy decided to motivate his partner to never give up, he stayed with him till he made it. {never give up}.
 
 ## Chapter 7:
